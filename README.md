@@ -1,4 +1,4 @@
-## Hola, Soy Regina Leme , apasionada por los negocios y la tecnologia.
+## Hola!! Soy Regina Leme , apasionada por los negocios y la tecnologia.
 
 Me encantan las pizzas con cervezas, automatizaciones, los libros, e invertir tiempo en mi desarrollo personal.
 
